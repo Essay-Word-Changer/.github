@@ -8,7 +8,7 @@
 </div>
 
 <blockquote align="center"><strong>Best Word Changer in 2025</strong> – Instantly reword sentences, improve clarity, and make essays unique. Designed for students, writers, educators, and professionals. 👉👉<a href="https://rytr.me/?via=essaywordchanger">
-Get the Word Changer / Paraphraser completely free</a>a</blockquote>
+Get the Word Changer / Paraphraser completely free</a></blockquote>
 <hr />
 
 <h2>Take Your Writing Further🚀</h2>
